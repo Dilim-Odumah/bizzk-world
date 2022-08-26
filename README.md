@@ -3,5 +3,5 @@ I produce contents of various types, loves learning and reading; hence my attrac
 A sports enthusiast, especially the "game of soccer" amongst others.
  - A passionate writer on bizzkonnect - my platform.
  - Always on the net surfing to give YOU interesting articles.
-Get motivated by me README!
+Get motivated by my README!
 Thank You For Reading Through!
